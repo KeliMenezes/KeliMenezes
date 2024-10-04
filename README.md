@@ -5,7 +5,7 @@
   
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/kelimenezes/)
 
-- ### 💞️ Esteticista que foi picada pelo "bicinho" da tecnologia.💞️
+- ### 💞️ Esteticista que foi picada pelo "bichinho" da tecnologia.💞️
 
   
 
